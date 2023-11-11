@@ -8,7 +8,7 @@
 **Phone:** + 7 705 528 17 17<br>
 **E-mail:** otarov.logigue@gmail.com<br>
 **Telegram:** @watasinomae<br>
-[LinkedIn](https://www.linkedin.com/in/yotarov/)br>
+[LinkedIn](https://www.linkedin.com/in/yotarov/)<br>
 
 ---
 
